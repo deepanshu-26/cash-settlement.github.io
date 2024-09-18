@@ -1,3 +1,1 @@
-Link
-
-https://mohit0304.github.io/Cash-Flow-Manager/
+CASH SETTLEMENT BY PRIYANSHU VASHISHTHA
