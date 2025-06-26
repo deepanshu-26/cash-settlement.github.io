@@ -1,2 +1,2 @@
-CASH SETTLEMENT BY PRIYANSHU VASHISHTHA
-https://vashishtha07.github.io/cash-settlement.github.io/
+CASH SETTLEMENT BY Deepanshu
+https://deepanshu-26.github.io/cash-settlement.github.io/
